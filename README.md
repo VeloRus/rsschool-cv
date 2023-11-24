@@ -1,1 +1,1 @@
-https://VeloRus.github.io/rsschool-cv/cvadd.
+https://VeloRus.github.io/rsschool-cv/cv
